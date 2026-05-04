@@ -9,3 +9,6 @@ krish garg PORTFOLIO :
 https://dva-portfolio-flax.vercel.app/   
 
 SRIJAN PATEL PORTFOLIO: https://dva-portfolio-main.vercel.app/
+
+Ronit Singh PORTFOLIO : 
+https://ronithi27.github.io/DVA_/
