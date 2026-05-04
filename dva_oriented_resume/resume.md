@@ -7,7 +7,9 @@ https://drive.google.com/file/d/1kCrXY33gz1h7hv7Q-bLc_r2wBqDGo_Xd/view?usp=shari
 
 SRIJAN PATEL RESUME:
 https://drive.google.com/file/d/15_9KxestY4TqVXGN0Ol0qZ5tQ0uXx8Px/view?usp=sharing
+
 krish garg Resume : 
 https://drive.google.com/file/d/1PjPUi71QbawCSHjO1xhJe-W6Q_Aw0DtD/view?usp=sharing
 
-
+Ronit Singh Resume :
+https://drive.google.com/file/d/1k0q4g1U0OXNfIcWGbV4cO4PNIgVUHkfV/view?usp=sharing
